@@ -35,8 +35,8 @@ RHGDA는 창작과 기록을 책으로 이어가는 출판 브랜드를 지향�
 
 ## 공식 채널 · 문의
 
-- [RHGDA 공식 브랜드 사이트](https://www.rhgda.com)
-- [류화고동 공식 홈페이지](https://www.hwagodong.com)
+- [RHGDA | 공식 브랜드 홈페이지](https://www.rhgda.com)
+- [류화고동 | 공식 작가 홈페이지](https://www.hwagodong.com)
 - [RHGDA Instagram](https://www.instagram.com/rhgda.official/)
 - [류화고동 Instagram](https://www.instagram.com/ryuhwagodong/)
 - [YouTube](https://www.youtube.com/@hwagodong)
