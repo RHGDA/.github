@@ -39,7 +39,7 @@ RHGDA는 창작과 기록을 책으로 이어가는 출판 브랜드를 지향�
 - [Official | Artist Website](https://www.hwagodong.com)
 - [Official | Brand Instagram](https://www.instagram.com/rhgda.official/)
 - [Official | Artist Instagram](https://www.instagram.com/ryuhwagodong/)
-- [Official | YouTube](https://www.youtube.com/@hwagodong)
+- [Official | YouTube](https://www.youtube.com/@ryuhwagodong)
 - 브랜드 문의: [rhgda.official@gmail.com](mailto:rhgda.official@gmail.com)
 
 ---
